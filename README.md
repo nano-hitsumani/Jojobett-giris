@@ -1,11 +1,11 @@
-# <a href="https://l24.im/y3tYe">Giris-Jojobet.com</a>
+# <a href="https://l24.im/qN8OE">Giris-Jojobet.com</a>
 
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
-<a href="https://l24.im/y3tYe" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/nLk2ORyP.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://l24.im/y3tYe">
+<a href="https://l24.im/qN8OE" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/nLk2ORyP.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://l24.im/qN8OE">
     <img src="https://r.resimlink.com/cIsTDQheZb.jpg" />
 </a>
 </a>
